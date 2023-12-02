@@ -1,4 +1,4 @@
-# fn+geeks community
+# fn+geeks community of First Ninja
 
 Our sole mission is to help you recognize your potential :muscle: and purpose :musical_note:. We believe that everyone has a gift in himself or herself but are not able to see it. We will help you in every possible way. Just ask us! :heart_eyes: 
 
